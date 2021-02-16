@@ -1,1 +1,1 @@
-fuckyouself
+fuck
